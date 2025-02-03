@@ -1,4 +1,4 @@
-## Hallo zusmamen 👋
+## Hallo zusammen 👋
 
 Ich bin einfach einer von vielen Cyber Security Studenten der IU 😄
 
